@@ -3,7 +3,7 @@ https://drive.google.com/file/d/1vAdOOnabloZu_nDWcPiuFEf79vzcFOrW/view?usp=shari
 Дедлайн: 09-352(1) - 28.02.24<br>
          09-352(2) - 26.02.24<br>
 <br>
-Куда сдать домашнюю работу 02 <br>
+Куда сдать домашнюю работу 02 (про класс Animal) <br>
 https://classroom.github.com/a/997Ue9-U<br>
 
 
