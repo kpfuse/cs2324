@@ -7,9 +7,9 @@ https://drive.google.com/file/d/1vAdOOnabloZu_nDWcPiuFEf79vzcFOrW/view?usp=shari
 https://classroom.github.com/a/997Ue9-U<br>
 
 
-Куда сдать индивидуальную работу 01 <br>
+Куда сдать индивидуальную работу 01 (делали в аудитории с бумажного листа)<br>
 https://classroom.github.com/a/LGrhxRqr 
-<br>
+<br><br>
 Куда сдать лабораторную работу 01 <br>
 https://classroom.github.com/a/MEnHeAj3 <br>
 <br>
