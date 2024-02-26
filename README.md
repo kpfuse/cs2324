@@ -1,3 +1,6 @@
+Лабораторная работа 03.<br>
+https://drive.google.com/file/d/1sF-NQMs05ZaWY4-T-RBGpbDZ1GXcXc0Z/view?usp=sharing
+<br>
 Домашняя работа 02.<br>
 https://drive.google.com/file/d/1vAdOOnabloZu_nDWcPiuFEf79vzcFOrW/view?usp=sharing <br>
 Дедлайн: 09-352(1) - 28.02.24<br>
