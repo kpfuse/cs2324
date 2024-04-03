@@ -1,3 +1,6 @@
+Куда сдать лабораторную работу 07 - Динамический массив (вещественные числа) <br>
+https://classroom.github.com/a/nLg4WSot <br>
+<br><br>
 Лабораторная работа 03.<br>
 https://drive.google.com/file/d/1sF-NQMs05ZaWY4-T-RBGpbDZ1GXcXc0Z/view?usp=sharing
 <br>
